@@ -1,2 +1,2 @@
 ## **Bom dia** 🍎 
-<img src="https://wsrv.nl/?url=https://github.com/MendingTuruu.png?size=500&w=300&h=300&fit=cover&mask=circle" width="75%" style="margin-left: auto;margin-right: auto;display: block;">
+<gif src="https://www.google.com/url?sa=i&url=https%3A%2F%2Fsteamcommunity.com%2Fsharedfiles%2Ffiledetails%2F%3Fid%3D1362848826&psig=AOvVaw2rCRDQhz7EDDTqP1wT6HH3&ust=1722607893677000&source=images&cd=vfe&opi=89978449&ved=0CBAQjRxqFwoTCLiI8ND804cDFQAAAAAdAAAAABAT" width="75%" style="margin-left: auto;margin-right: auto;display: block;">
